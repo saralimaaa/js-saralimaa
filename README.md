@@ -10,7 +10,11 @@
 
   **꩜** _Usarei esse espaço para o compartilhamento de **ideias** e **projetos**!!!ֶָ֢_
 
+  ## Você pode entrar em contato comigo🍰ྀི
 
- _**౨ৎ⋆˚｡⋆** E é isso, espero que gostem e achem legal os próximos repertórios!! **𓍢ִ໋🌷͙֒˚**_
+  00001106774656sp@al.educacao.sp.gov.br
+
+
+ ## _**౨ৎ⋆˚｡⋆** E é isso, espero que gostem e achem legal os próximos repertórios!! **𓍢ִ໋🌷͙֒˚**_
 
  
