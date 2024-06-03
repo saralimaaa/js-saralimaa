@@ -4,7 +4,7 @@
 
   **꩜** _Meus pronomes são **ela/dela**._
   
-  **꩜** _Sou aluna do [**Alura**](https://www.alura.com.br)
+  **꩜** _Sou aluna do_ [**Alura**](https://www.alura.com.br) 
 
   **꩜** _Estou me desenvolvendo no **JavaScript**.ֶָ֢_
 
