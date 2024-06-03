@@ -17,4 +17,6 @@
 
  ## _**౨ৎ⋆˚｡⋆** E é isso, espero que gostem e achem legal os próximos repertórios!! **𓍢ִ໋🌷͙֒˚**_
 
- 
+
+
+ ![]<img src="https://media1.tenor.com/m/zgJro5b9dnwAAAAd/sana-twice.gif" alt="Sana Twice GIF - Sana Twice GIFs"/>
